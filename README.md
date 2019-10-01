@@ -1,2 +1,1 @@
-��# qq
-lowrest
+Ala ma kota
